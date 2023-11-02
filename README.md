@@ -6,7 +6,7 @@
 - That's about it rn LOL
 
 
-- Favorite List
+### Favorite List
 
 - Color: Red
 - Number: 7
