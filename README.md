@@ -5,3 +5,11 @@
 - My favorite class is Computer Science
 - That's about it rn LOL
 
+
+- Favorite List
+
+- Color: Red
+- Number: 7
+- Ice Cream: Cookies n Cream (the best btw)
+- Video Game: Geometry Dash
+- Cookie: Chocolate Chip
